@@ -2,7 +2,7 @@
 
 ∘₊✧─────────────────────✧₊∘
 
-[𝐀𝐭𝐚𝐛𝐨𝐨𝐤 ^_^](https://kagaminelen.atabook.org) 
+[𝐀𝐭𝐚𝐛𝐨𝐨𝐤 ^_^](https://kagaminelen.atabook.org) ⑅ [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 •_•](https://idias-awesome.straw.page/) 
 
 
 
